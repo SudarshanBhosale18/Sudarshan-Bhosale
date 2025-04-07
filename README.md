@@ -11,7 +11,7 @@
 
 - 👯 I’m looking to collaborate on [www.linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=sudarshan-bhosale-249030225](www.linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=sudarshan-bhosale-249030225)
 
-- 📫 How to reach me **udarshanbhosale18@gmail.com**
+- 📫 How to reach me **sudarshanbhosale18@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
